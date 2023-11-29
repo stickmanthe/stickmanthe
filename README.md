@@ -1,3 +1,3 @@
-привет я стикман и я люблю компуктар
+i like stickmans
 
 ![](https://dcbadge.vercel.app/api/shield/727103828800831549)
