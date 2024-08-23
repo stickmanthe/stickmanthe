@@ -1,5 +1,3 @@
-<a href="https://stickman.lf45p.pw/">stickman.lf45p.pw</a>
+<a href="https://lf45p.pw/">lf45p.pw</a>
 
-<a href="https://stickmanvbobloxe.xyz/">stickmanvbobloxe.xyz</a>
-
-![](https://dcbadge.limes.pink/api/shield/727103828800831549)
+<a href="https://discord.com/users/727103828800831549">![](https://dcbadge.limes.pink/api/shield/727103828800831549)</a>
